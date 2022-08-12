@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @realjacob
-- 👀 I’m interested in exercising and music.
-- 🌱 I’m currently learning Python and JAVA
+- 👀 I have an obsession with muscles
+- 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...email 921957815@qq.com.
 
